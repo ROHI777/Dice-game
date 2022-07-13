@@ -1,0 +1,2 @@
+# Kyrgyz society
+ 
